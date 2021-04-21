@@ -3,8 +3,6 @@
 
  -  **CONTACT** 
 
-_Tel.: +79083280978_ 
-
 _Email: anastasyaserd@gmail.com_
 
 _Adress: Saint-Peterburg_
