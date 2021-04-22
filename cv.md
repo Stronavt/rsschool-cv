@@ -13,7 +13,7 @@ _There is a great desire to develop in the field of IT. Although there is no exp
 
 - **SKILLS**
 
-_I hope to get them on the course. In addition, perseverance, perseverance._
+_I hope to get them on the course. In addition, perseverance, purposefulness._
 
  - **CODE EXAMPLES**
 
